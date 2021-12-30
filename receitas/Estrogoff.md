@@ -12,17 +12,17 @@
 
  - 2 colheres (sopa) de maionese
 
-  1 colher de manteiga
+ - 1 colher de manteiga
 
-  1/2 copo de ketchup
+ - 1/2 copo de ketchup
 
-  1/3 copo de mostarda
+ - 1/3 copo de mostarda
 
-  1 copo de cogumelos
+ - 1 copo de cogumelos
 
-  1 copo de creme de leite
+ - 1 copo de creme de leite
 
-  batata palha a gosto
+ - batata palha a gosto
 
 ### Modo de preparo
 
